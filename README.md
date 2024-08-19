@@ -1,0 +1,1 @@
+# GeolocatedARTESTovy1os
